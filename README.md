@@ -1,0 +1,2 @@
+# ayra-jewellery-
+Tugas UAS
